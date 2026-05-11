@@ -1,4 +1,4 @@
-
+Get the ultimate CorelDRAW for macOS extension with vip CorelDRAW for macOS Extension | vector tools + smart objects. Featuring vector tools and smart objects, it's the best
 
 
 
